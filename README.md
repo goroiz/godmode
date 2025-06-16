@@ -1,0 +1,2 @@
+# godmode
+untuk antartika
